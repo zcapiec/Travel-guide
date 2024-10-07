@@ -1,0 +1,4 @@
+# Beijing
+Beijing, previously romanized as Peking, is the capital of China. With more than 22 million residents, it is the world's most populous national capital city as well as China's second largest city after Shanghai. It is located in Northern China, and is governed as a municipality under the direct administration of the State Council with 16 urban, suburban, and rural districts. Beijing is mostly surrounded by Hebei Province and neighbors Tianjin to the southeast; together, the three divisions form the Jing-Jin-Ji cluster. it is ranked as the 10th most important city in the world by Knight Frank.
+
+link wk: https://en.wikipedia.org/wiki/Beijing
